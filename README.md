@@ -1,2 +1,0 @@
-# khangnayhaha.github.com
-okk
